@@ -1,0 +1,1 @@
+Espers who have either evaded being [[Catalogue]]d or were already catalogued by managed to escape and disable their implants.

@@ -1,0 +1,1 @@
+Department of Interdimensional Affairs, founded by the [[UEG]] to find and terminate the [[Calamity]] class entity known as [[The Hunter]].

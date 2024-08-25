@@ -1,0 +1,1 @@
+The meta-physical representation of [[The Director]] in the [[Dreamscape]].

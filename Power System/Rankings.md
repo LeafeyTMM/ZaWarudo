@@ -1,0 +1,10 @@
+- [[F]]
+- [[D]]
+- [[C]]
+- [[B]]
+- [[A]]
+- [[S]]
+- [[SS]]
+- [[SS+]]
+- [[Calamity]]
+Every [[Esper]] is categorized into the above ranks ([[Rankers]]). A person's rank can change depending on their mastery of their respective [[Ability]]. That's not to say that everyone can reach the top ranks; Not all abilities are created equally. Some have better potential than others. As an example, control of fire (pyro-kinesis) obviously has more potential than simple resistance to fire.

@@ -1,0 +1,1 @@
+Those who Awakened ([[Awakening]]) their abilities ([[Ability]]) naturally.

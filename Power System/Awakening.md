@@ -1,0 +1,3 @@
+The process of having one's [[Ability]] awakened, involves a person having to experience death *-or at least be in a situation where death is guaranteed.-* Through this process, a person's body adapts at a fraction of a second, changing one's physical appearance and-or brain structure. (in some cases it may only be outside appearance, for example when gaining only resistance to certain phenomena. In other cases *-like psycho-kinesis-* only the brain is altered) 
+
+The experience reported through the awakening wildly differs from person to person. In most cases, people remember a blinding light and nothing else. In much rarer cases people recall hearing voices or having visions lasting for multiple minutes, even though the process still finished with immeasurable speed.

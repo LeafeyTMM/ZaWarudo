@@ -1,0 +1,1 @@
+They were once countries, now named provinces, their area remains the same as they were before joining the [[UEG]].

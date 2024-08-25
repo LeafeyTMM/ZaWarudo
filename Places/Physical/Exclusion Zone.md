@@ -1,0 +1,1 @@
+Nuclear warhead impact areas. Circled with an impenetrable cage, completely cut off from the rest of society, as to not let people out. [[WWIII]] was the catalyst for Awakenings and the Council of Humanity was afraid that there may be Espers with impossibly strong powers inside those zones so they opted to cut it off.

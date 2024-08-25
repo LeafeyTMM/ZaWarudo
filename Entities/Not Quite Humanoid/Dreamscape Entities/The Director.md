@@ -1,0 +1,1 @@
+The disembodied voice that some people hear during their [[Awakening]] or in the [[Dreamscape]].
